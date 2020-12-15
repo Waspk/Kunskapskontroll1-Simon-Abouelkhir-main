@@ -1,4 +1,4 @@
-# Kunskapskontroll1-Frida-Waldt
+# Kunskapskontroll1-
 
 
 Välkommen till min  hemsida!
